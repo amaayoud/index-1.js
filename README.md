@@ -1,2 +1,2 @@
 # index-1.js
-bnatwhat
+https://tj-o.blogspot.com
